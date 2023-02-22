@@ -1,1 +1,0 @@
-# schulgartenteterow.github.io
